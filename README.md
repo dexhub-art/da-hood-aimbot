@@ -48,3 +48,8 @@ Found a bug? 🐞 Make an issue — I fix things fast ⚡
 
 This script is for educational purposes only 📚.
 Use responsibly. I’m not responsible for bans 🚫.
+
+
+HOW TO USE ⬇️⬇️⬇️
+To use the aimbot u need to launch Roblox Da hood game/Da Hood Copy, then click on the DaHoodAimbot.exe file and download it, open it and a gui will popup ingame. ENJOY! ❤️
+
